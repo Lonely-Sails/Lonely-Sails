@@ -1,4 +1,4 @@
-## Hi, I'm Lonely-Sails!
+## Hi there, I'm Lonely-Sails!
 
 <!-- https://github.com/DenverCoder1/readme-typing-svg -->
 <p align="center">
